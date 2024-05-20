@@ -1,6 +1,7 @@
-TFO by students
+TFO by students for students
 
 Elektronik for Dummies
+(May include traces of Spiss, Gaiser and Randy)
 
 By three students of The TFO
 
