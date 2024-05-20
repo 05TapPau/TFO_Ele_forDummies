@@ -7,5 +7,5 @@ By three students of The TFO
 
 By Simon Mayr, Ben Hofer and Paul Tappeiner
 
-These Materials shoulöd only be used for help!
+These materials should only be used as guidance!
 This is not meant to be cheat sheet to get some easy good grades!
