@@ -5,5 +5,7 @@ Elektronik for Dummies
 
 By three students of The TFO
 
-By **** ****, **** **** and **** ****;
-on a second thought maybe not the best idea to include our names
+By Simon Mayr, Ben Hofer and Paul Tappeiner
+
+These Materials shoulöd only be used for help!
+This is not meant to be cheat sheet to get some easy good grades!
